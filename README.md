@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @phre3
+- 👀 I’m interested in IT Automation
+- 🌱 I’m currently learning Puyhon
+- 📫 How to reach me phre3wastaken@gmail.com
+- 👀👀 keep an eye out for new projects coming soon!
